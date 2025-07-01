@@ -1,2 +1,2 @@
-# reto_7_-ltimo-
+# reto_7_último-
 Respuesta al reto 7
